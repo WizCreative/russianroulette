@@ -1,1 +1,1 @@
-Play at your risk 
+Play at your own risk 
